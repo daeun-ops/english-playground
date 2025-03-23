@@ -1,4 +1,4 @@
-## Day01 (2025-03-25)
+## Day01 (2025-03-24)
 https://youtu.be/NaLYpqdw4mo?si=Tbjjt3Hwal_TMce0
 
 ### 01 Time to get up.
