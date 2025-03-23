@@ -1,22 +1,22 @@
-## Day01 (2025-03-24)
-https://youtu.be/KJgFn7HOrtQ?si=1vKSKtQkkJdAt7zP
+## Day01 (2025-03-25)
+https://youtu.be/h59hrJGG3as?si=Q2GthMM7e83uai6n
 
-### 01  Thank you all for being here.
+### 01  Email me that idea, will you?
 
-### 02 So I just want to kick it off by thanking everyone for joining today.  
+### 02 Just email it to me directly
 
-### 03 I appreciate the opportunity to speak today. 
+### 03 Cc him on all my e-mails
 
-### 04 Can everyone hear me in the back? 
+### 04 make a PDF, email it to me, cc George
 
-### 05 Can everyone hear me okay?
+### 05 I forwarded it to Anna
 
-### 06  Before i get started, I just wanted to briefly introduce myself. 
+### 06 Do you have a minute?
 
-### 07 Before I get started on that story, I want to draw attenttion to this slide behind me. 
+### 07 Is this a good time?
 
-### 08 But before I dive into that, I want to tell you thw stories. 
+### 08 I hate to interrupt you, bu could you I speak to you for a sec?
 
-### 09 But before I dive into that, let's start with something really simple 
+### 09 Sorry to interrupt. There's someone here who'd like to see you.
 
-### 10 Now, before I go any further let me clarfy a bit. 
+### 10 I'm sort of in the middle of something
