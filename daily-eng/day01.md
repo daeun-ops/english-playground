@@ -2,6 +2,7 @@
 https://youtu.be/NaLYpqdw4mo?si=Tbjjt3Hwal_TMce0
 
 ### 01 Time to get up.
+일어날 시간이야.
 
 ### 02 You're up early
 
