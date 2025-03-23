@@ -2,6 +2,7 @@
 https://youtu.be/h59hrJGG3as?si=Q2GthMM7e83uai6n
 
 ### 01  Email me that idea, will you?
+그 아이디어 나한테 이메일로 보내줄래?
 
 ### 02 Just email it to me directly
 
