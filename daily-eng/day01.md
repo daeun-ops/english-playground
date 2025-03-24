@@ -4,23 +4,36 @@ https://youtu.be/NaLYpqdw4mo?si=Tbjjt3Hwal_TMce0
 ### 01 Time to get up.
 일어날 시간이야.
 
-### 02 You're up early
+### 02 You're up early.
+일찍 일어났네.
+> "up"은 "일어난, 깨어 있는" 상태를 의미합니다. 직역은 "당신은 일찍 위에 있다"이지만, 관용적으로 "일어나다"의 의미로 사용됩니다.
 
 ### 03 Was I Snoring?
+나 코 골았어?
 
 ### 04 My alarm didn't go off. 
+알람이 안울렸어.
+> "go off"는 알람 맥락에서 "울리다, 작동하다"를 의미합니다. 직역은 "떠나다"이지만, 알람과 함께 사용될 때는 "울리다"를 의미하는 관용적 표현입니다.
 
 ### 05 Did you make your bed? 
+침대 정리했어?
+> "make the bed"는 "침대를 정돈하다/이불을 개다"라는 의미의 관용구입니다. 직역은 "침대를 만들다"이지만, 실제로는 침대를 깔끔하게 정리하는 행위를 말합니다.
 
-### 06 Well, I'm off to bed 
+### 06 Well, I'm off to bed .
+자러 갈게.
+> "I'm off to bed"는 "침대로 간다" 즉 "잠자러 간다"는 의미입니다. "off to"는 "~로 떠나다"라는 의미로 사용됩니다.
 
-### 07 Sleep tight
+### 07 Sleep tight.
+잘 자.
+> 직역하면 "꽉 잠들어라"이지만, 실제로는 "잘 자요"라는 인사말입니다. 과거 줄 침대(rope beds)에서 유래했다는 이론이 있으며, 침대 줄을 단단히 당겨야 편안하게 잘 수 있었다는 데서 비롯됐다고 합니다.
 
-### 08 Don'tstay up too late
+### 08 Don't stay up too late.
+너무 늦게 자지 마.
+> "stay up"은 "깨어 있다, 자지 않고 있다"라는 의미입니다. 직역하면 "위에 머물러 있다"이지만, 수면 관련 맥락에서는 "늦게까지 자지 않는 상태"를 의미합니다.
 
 ### 09 Sorry I woke you. Go back to sleep.
+깨워서 미안해. 다시 자.
 
 ### 10 I slept like a log night.
-
-
-
+나 어젯 밤 완전 곯아떨어졌어.
+> "sleep like a log"는 "아주 깊게 자다"를 의미하는 관용적 표현입니다. 나무토막(log)처럼 꼼짝 않고 깊이 잠들었다는 비유적 표현입니다.
