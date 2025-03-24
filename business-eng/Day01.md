@@ -23,14 +23,14 @@ PDF로 만들어서 나한테 이메일 보내고, George도 참조(CC) 걸어�
 지금 이야기 나눠도 괜찮을까요?
 
 ### 08 I hate to interrupt you, bu could you I speak to you for a sec?
-방해해서 죄송한데, 잠깐 이야기할 수 있을까요?
+방해해서 죄송한데, 잠깐 이야기할 수 있을까요? <br>
 "I hate to interrupt you"는 방해하고 싶지 않지만 어쩔 수 없이 말을 걸어야 할 때 예의를 갖춘 표현
 
 ### 09 Sorry to interrupt. There's someone here who'd like to see you.
 죄송해요, 방해해서. 여기서 당신을 만나고 싶어 하는 분이 계세요.
 
 ### 10 I'm sort of in the middle of something
-지금 좀 바쁜데.
+지금 좀 바쁜데. <br>
 "sort of"는 "약간", "좀"이라는 뜻으로, 직접적으로 "바쁘다"고 말하는 것보다 부드러운 뉘앙스를 줌
 
 
