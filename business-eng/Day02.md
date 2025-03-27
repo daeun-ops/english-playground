@@ -28,4 +28,4 @@ https://www.youtube.com/watch?v=h59hrJGG3as&t=199s
 ### 09 Okay, let's get back to what you were saying before.
 
 
-### 10 We're whort on tiem, so I'll brief on this.
+### 10 We're Short on tiem, so I'll brief on this.
