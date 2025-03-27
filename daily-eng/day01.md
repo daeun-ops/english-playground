@@ -34,6 +34,6 @@ https://youtu.be/NaLYpqdw4mo?si=Tbjjt3Hwal_TMce0
 ### 09 Sorry I woke you. Go back to sleep.
 깨워서 미안해. 다시 자.
 
-### 10 I slept like a log night.
+### 10 I slept like a log last night.
 나 어젯 밤 완전 곯아떨어졌어.
 > "sleep like a log"는 "아주 깊게 자다"를 의미하는 관용적 표현입니다. 나무토막(log)처럼 꼼짝 않고 깊이 잠들었다는 비유적 표현입니다.
