@@ -1,3 +1,7 @@
+## Day04 (2025-04-01)
+https://youtu.be/h59hrJGG3as?t=380
+
+
 ### 31 What are you working on?
 
 > 뭐 하고 계시나요?
