@@ -1,5 +1,5 @@
 ## Day04 (2025-04-01)
-https://youtu.be/h59hrJGG3as?t=380
+https://youtu.be/h59hrJGG3as?t=551
 
 
 ### 31 What are you working on?
